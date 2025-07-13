@@ -1,2 +1,0 @@
-# jnecukirjombang
-shipping agent
